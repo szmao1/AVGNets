@@ -1,1 +1,1 @@
-# Work is under anonymous review
+The work is under anonymous review.
